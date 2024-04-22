@@ -1,0 +1,1 @@
+//Note: not possible to write it here either prefer hand written notes or yt video.
